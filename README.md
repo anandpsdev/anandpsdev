@@ -25,7 +25,7 @@
 ### 📬 How to Reach Me
 
 - 📧 **Email:** [anandps002@gmail.com](mailto:anandps002@gmail.com)  
-- 💬 **Telegram:** [@Anandpskerala](https://t.me/Anandpskerala)
+- 💬 **Telegram:** [Anand](https://t.me/Anandpskerala)
 - 🔗 **LinkedIn:** [Anand PS](https://www.linkedin.com/in/anand-p-s-67a356289/)
 
 ---
